@@ -22,7 +22,7 @@ The **Erityian Tribes Series** has four books, and each one features the tribe i
 
 ## Why I Love It
 - *Tantei High* hooked me with its mysteries and history
-- I kept going to `Seventh Sense` to find the answers, and it made me **absolutely love** the series
+- I continued to `Seventh Sense` to find the answers, and it made me **absolutely love** the series
 - I grew up with it and I reread it so many times during the pandemic that I lost count
 
 ## My Rating
